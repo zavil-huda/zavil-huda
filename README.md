@@ -1,5 +1,5 @@
-# 😎 About Me:
-🔭 I’m currently working on:<br>Building my UI/UX Portfolio and creating real Figma case studies<br><br>👯 I’m looking to collaborate on:<br>UI/UX Design • Creative Projects • Startup Ideas<br><br>🤝 I’m looking for help with:<br>Growing as a UI/UX Designer and improving product thinking<br><br>🌱 I’m currently learning:<br>Data Analytics • Power BI • AI-assisted workflows<br><br>💬 Ask me about:<br>Figma • Canva • UI/UX • Productivity with AI Tools<br><br>⚡ Fun fact:<br>I enjoy combining design, AI, and technology to create smarter and faster creative workflows<br>
+# About Me:
+🔭 I’m currently working on:<br>Building my UI/UX Portfolio and creating real Figma case studies<br><br> I’m looking to collaborate on:<br>UI/UX Design • Creative Projects • Startup Ideas<br><br> I’m looking for help with:<br>Growing as a UI/UX Designer and improving product thinking<br><br> I’m currently learning:<br>Data Analytics • Power BI • AI-assisted workflows<br><br> Ask me about:<br>Figma • Canva • UI/UX • Productivity with AI Tools<br><br>⚡ Fun fact:<br>I enjoy combining design, AI, and technology to create smarter and faster creative workflows<br>
 
 
 ## 🌐 Socials:
